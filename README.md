@@ -2,7 +2,8 @@
 The Apar Dhan Prapti Kavach and Vyapar Vridhi Kavach is meticulously crafted to amplify the energies of all wealth-giving planets through the worship of Ganesh ji, Laxmi ji, Vishnu ji, and Kuber ji. 
 
 **Vyapaar Vriddhi Yantra & Apar Dhan Prapti Kavach**
-<img width="1536" height="1024" alt="ChatGPT Image Dec 18, 2025, 01_45_30 PM" src="https://github.com/user-attachments/assets/0bb0fd69-d3a0-4774-a40f-ec9f5c792457" />
+<img width="1250" height="720" alt="Untitled design (16)" src="https://github.com/user-attachments/assets/3f157988-9e91-4161-accf-251005c2b817" />
+
 
 Vyapaar Vriddhi Yantra and Apar Dhan Prapti Kavach are spiritual tools that many business people believe in for success, growth, and stable income. These sacred items are trusted by shop owners, traders, and business owners who want their work to grow smoothly and their money to stay safe. In today’s time, running a business is not easy. Competition is high, expenses are rising, and stress is always there. Many people work day and night but still feel that something is missing. Sales do not increase, profits stay low, or money comes but does not stay. These problems slowly create fear and tension in life. Many people believe that such problems are not only practical but also energetic. When business energy or money energy becomes weak, progress slows down. Vyapaar Vriddhi Yantra and Apar Dhan Prapti Kavach are believed to help balance this energy and support business growth and money safety.
 
